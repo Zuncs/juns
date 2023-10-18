@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **juncs4923@gmail.com**
 
-- ⚡ Fun fact **I think I am funny XD**
+- ⚡ Fun fact **I think I am Elon Musk**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
